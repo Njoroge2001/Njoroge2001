@@ -1,6 +1,6 @@
 - 👋 Hi, I’m njoroge kimani
 - 👀 I love memes
-- 🌱 I’m currently studying at Deakin University
+- 🌱 I’m currently studying Comp Science at Deakin University
 - 📫 therealkenyan@gmail.com
 
 <!---
