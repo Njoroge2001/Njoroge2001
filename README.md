@@ -1,5 +1,5 @@
 - 👋 Hi, I’m njoroge kimani
-- 👀 I love memes
+- 👀 Certified Meme Lord
 - 🌱 I’m currently studying Comp Science at Deakin University
 - 📫 therealkenyan@gmail.com
 
