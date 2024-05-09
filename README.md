@@ -1,5 +1,4 @@
 - 👋 Niaje, I’m njoroge kimani
-- 👀 Certified Meme Lord
 - 🌱 I’m currently studying Comp Science at Deakin University
 - 📫 therealkenyan@gmail.com
 
