@@ -1,5 +1,5 @@
 - 👋 Niaje, I’m njoroge kimani
-- 🌱 I’m currently studying Comp Science at Deakin University
+- 🌱 I’m currently studying at USIU - Africa
 - 📫 therealkenyan@gmail.com
 
 <!---
